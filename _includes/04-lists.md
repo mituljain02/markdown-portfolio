@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+🐴
+🦈
+🐳
+
+in order fav games
+1) pool
+2) badmintion
