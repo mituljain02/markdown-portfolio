@@ -1,7 +1,8 @@
-🐴
-🦈
-🐳
-
-in order fav games
-1) pool
-2) badmintion
+A list of fav things
+- 🐈‍⬛
+- 🐳
+- 🦈
+- 🎠
+* 🐶
+* 🐊
+* 👪
